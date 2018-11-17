@@ -1,7 +1,7 @@
 
 # Australopithecus
 
-```
+
 Hace tiempo ya. Una noche de marcha por La Laguna... o quizás fue en el "Ruta". No recuerdo.
 
 Héctor quería conocer a una chica que estaba allí. En aquel local.
@@ -38,7 +38,5 @@ Eso fue lo que me vino y mira... ahora estoy hablando contigo.
 Esa noche hablaron y hablaron. Y él se fue contento a casa.
 
 ;-)
-
-```
 
 ¿Te acuerdas?
