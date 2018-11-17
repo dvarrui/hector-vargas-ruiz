@@ -2,7 +2,9 @@
 # Australopithecus
 
 
-Hace tiempo ya. Una noche de marcha por La Laguna... o quizás fue en el "Ruta". No recuerdo.
+Hace tiempo ya.
+
+Una noche de marcha por La Laguna... o quizás fue en el "Ruta". No recuerdo.
 
 Héctor quería conocer a una chica que estaba allí. En aquel local.
 Pero... no se atrevía. No sabía cómo podía acercarse y hablar con ella.
