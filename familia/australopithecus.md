@@ -8,7 +8,7 @@ Una noche de marcha por La Laguna... o quizás fue en el "Ruta". No recuerdo.
 
 Héctor quería conocer a una chica que estaba allí. En aquel local.
 Pero... no se atrevía. No sabía cómo podía acercarse y hablar con ella.
-En fin, lo normal para no quedar mal.
+En fin, lo normal.
 
 Pensó y pensó. Y de tanto pensar llegó a la conclusión de que pasaba el tiempo. Si seguía así se acabaría la noche, como otras noches, sin hacer nada.
 Había que intentar algo. ¡Si! ¿Pero el qué? ... ¡no sé! ¡Algo!
