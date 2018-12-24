@@ -9,4 +9,6 @@
 
 ---
 
+* [Algo de esperanza](./algo-de-esperanza)
 * [Familia](./familia)
+* [Reflexiones oscuras](./reflexiones-oscuras)
